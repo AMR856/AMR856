@@ -5,6 +5,9 @@ Electronics and Communication Undergrad
 ---------------------------------------
 
 * 🌍  I'm based in Alexandria
+* 🎮  I like metroidvania and FPS games
+* 🎧  My music fav geners are pop and rock
+* ⚡  Harry Potter fan
 * ✉️  You can contact me at [amer.live477@gmail.com](mailto:amer.live477@gmail.com)
 
 ### Skills
