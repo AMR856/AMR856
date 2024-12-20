@@ -9,7 +9,6 @@ Electronics and Communication Undergrad
 * 🎧  My music fav geners are pop and rock
 * ⚡  Potterhead
 * ✉️  You can contact me at [amer.live477@gmail.com](mailto:amer.live477@gmail.com)
-* 📱   01123759955
 
 
 ### Skills
